@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DrTemperance
+- 👀 I’m interested in math & science.
+- 🌱 I’m currently learning advanced mathematics and intermediate coding.
+- 📫 Contact me through links on my website.
